@@ -1,2 +1,2 @@
-# ideal-pancake-idumea--rable-
+# ideal-pancake-idea--rable-
 Stubby -Stubble/readme
